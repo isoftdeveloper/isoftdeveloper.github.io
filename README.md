@@ -1,1 +1,0 @@
-# isoftdeveloper.github.io
